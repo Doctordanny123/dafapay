@@ -4,7 +4,7 @@ Effective date June 10, 2024
 
 
 
-Thank you for choosing to be part of our community at Dafapay ("Company," "we," "us," or "our"). We are committed to protecting your personal information and your right to privacy. If you have any questions or concerns about this privacy notice or our practices with regard to your personal information, please contact us at support@asapsoftwares.com.
+Thank you for choosing to be part of our community at Dafapay ("Company," "we," "us," or "our"). We are committed to protecting your personal information and your right to privacy. If you have any questions or concerns about this privacy notice or our practices with regard to your personal information, please contact us at templeton7154@gmail.com.
 
 This privacy notice describes how we might use your information if you:
 
